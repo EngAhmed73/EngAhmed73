@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EngAhmed73
-- 👀 I’m interested in technical fields 
-- 🌱 I’m currently doing Computer Engineering ...
+- 👀 I’m Computer Engineering student 
+- 🌱 tech enthusiast 
 - 📫 How to reach me ( ig: _q1lui)
 
 
